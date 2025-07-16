@@ -1,1 +1,1 @@
-Hi
+Some of you need to be reminded that the spawn cult is NOT a real cult, nor should you partake in spawnism. It's a fictional cult that two-time is in, and you do not and will not ever have the ability to respawn.
